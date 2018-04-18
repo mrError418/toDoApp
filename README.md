@@ -1,4 +1,4 @@
-Yes it its true that i don't made it by myself(i watch and step by step studiet it), 
+Yes it its true that i don't made it by myself(i watch and step by step studied it), 
 but that doesnt mean that i don`t understood all the code. 
 
 
